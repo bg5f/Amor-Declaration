@@ -1,0 +1,1 @@
+# Amor-Declaration
